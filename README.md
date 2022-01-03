@@ -1,2 +1,2 @@
 # pavan
-pavan seeking
+pavan seeing
